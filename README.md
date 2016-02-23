@@ -1,0 +1,3 @@
+# Assignment
+CV
+Fucking stupid
