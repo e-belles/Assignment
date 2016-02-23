@@ -1,3 +1,3 @@
 # Assignment
 CV
-Fucking stupid
+
